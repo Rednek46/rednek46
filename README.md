@@ -1,4 +1,4 @@
-### Uh oh.. You stumbled across my old username. My account is now [here](https://github.com/rednek46) . 
+### Uh oh.. You stumbled across my old username. My account is now [here](https://github.com/Nuzair46) . 
 
 <!--
 **Rednek46/rednek46** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
